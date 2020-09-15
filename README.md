@@ -1,0 +1,2 @@
+# kamuasu
+Ahhhhkimochi
